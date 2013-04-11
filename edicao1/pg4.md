@@ -16,6 +16,8 @@
 
 ## Leia-a-Lei
 
+Se a gente entende que o espaço público pode ser ocupado e apropriado pelo coletivo, as leis que regulamentam o uso e a convivência nesses espaços também podem ser apropriadas, discutidas, remixadas, hackeadas e repensadas pelas pessoas. Mas pra se aropriar da lei *mesmo*, com as linhas e as entrelinhas, não tem jeito - tem que ler.
+
 ### A favor
 
 **Dos Direitos e Garantias Fundamentais**
