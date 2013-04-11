@@ -97,4 +97,4 @@ Claro! As ruas ainda são para dançar! :P Para se ter uma ideia, das mais de 53
 
 Por que não? :P
 
-\*Questões feitas por uma galera e respondidas por um monte de gente. Aquele super obrigada a todos os/as repórteres, perguntadores e curiosas que incitaram o BaixoCentro a refletir e registrar sua(s) história(s). Valeu! :*
+\*Questões feitas por uma galera e respondidas por um monte de gente. Tem mais no http://pontaopad.me/EntrevistasBxC. Aquele super obrigada a todos os/as repórteres, perguntadores e curiosas que incitaram o BaixoCentro a refletir e registrar sua(s) história(s). Valeu! :*
